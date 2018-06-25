@@ -1,2 +1,2 @@
-<h1> David Shiffman @whysharksmatter has a favorite shark, so we made him this page </h1>
+<h1> "Sandbar sharks are the best shark"- @whysharksmatter </h1>
 
